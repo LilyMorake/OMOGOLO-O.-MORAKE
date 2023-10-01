@@ -8,11 +8,11 @@ Hello everyone, welcome to my webpage. My name is Lily, I come from a beautiful 
 Whatever you set your mind to, you can achieve.
 
 # HOBBIES & INTERESTS
-  *  Reading interesting books
-  *  Watching movies
-  *  Taking walks
-  *  Travelling
-  *  Hanging out with friends and collegues
+  * Reading interesting books
+  * Watching movies
+  * Taking walks
+  * Travelling
+  * Hanging out with friends and collegues
     
 # CONTACT me @
 o.o.morake23@gmail.com
