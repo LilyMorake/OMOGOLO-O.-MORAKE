@@ -14,5 +14,4 @@ Whatever you set your mind to, you can achieve.
   * Travelling
   * Hanging out with friends and collegues
     
-# CONTACT me @
-o.o.morake23@gmail.com
+# CONTACT me @ o.o.morake23@gmail.com
