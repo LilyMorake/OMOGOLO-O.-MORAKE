@@ -10,13 +10,13 @@ I am currently in Zhejiang University for my masters and I am working on my Desi
 Whatever you set your mind to, you can achieve.
 
 ## INTERESTS
- * learning design softwares
- * learning new technologies
- * improving my problem solving skills
+ * Learning design softwares
+ * Learning new technologies
+ * Improving my problem solving skills
 
 ## HOBBIES 
  * Reading interesting books
- * learning new things
+ * Learning new skills
  * Watching movies
  * Taking walks
  * Travelling
