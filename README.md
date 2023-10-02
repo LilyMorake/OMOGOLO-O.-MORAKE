@@ -9,11 +9,11 @@ I am currently in Zhejiang University for my masters and I am working on my Desi
 ## LIFE MOTTO
 Whatever you set your mind to, you can achieve.
 
-### HOBBIES & INTERESTS
+## HOBBIES & INTERESTS
   * Reading interesting books
   * Watching movies
   * Taking walks
   * Travelling
   * Hanging out with friends and collegues
     
-# CONTACT me @ o.o.morake23@gmail.com
+## CONTACT me @ o.o.morake23@gmail.com
