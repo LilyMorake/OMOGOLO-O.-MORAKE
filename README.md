@@ -7,7 +7,7 @@ I am currently in Zhejiang University for my masters and I am working on my Desi
 ![](https://github.com/LilyMorake/OMOGOLO-O.-MORAKE/blob/main/IMG1/IMAGE.jpg)
 
 ## LIFE MOTTO
-*Whatever you set your mind to, you can achieve.*
+*Whatever you set your mind to, you can achieve*
 
 ## INTERESTS
  * Learning design softwares
