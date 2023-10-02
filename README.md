@@ -19,7 +19,7 @@ Whatever you set your mind to, you can achieve.
  * Learning new skills
  * Watching movies
  * Taking walks
- * Travelling
+ * Travelling & exploring
  * Hanging out with friends and collegues
     
 ## CONTACT me @ o.o.morake23@gmail.com
