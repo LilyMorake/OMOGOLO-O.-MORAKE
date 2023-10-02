@@ -10,13 +10,16 @@ I am currently in Zhejiang University for my masters and I am working on my Desi
 Whatever you set your mind to, you can achieve.
 
 ## INTERESTS
-* learn how to code
+ * learning design softwares
+ * learning new technologies
+ * improving my problem solving skills
 
 ## HOBBIES 
-  * Reading interesting books
-  * Watching movies
-  * Taking walks
-  * Travelling
-  * Hanging out with friends and collegues
+ * Reading interesting books
+ * learning new things
+ * Watching movies
+ * Taking walks
+ * Travelling
+ * Hanging out with friends and collegues
     
 ## CONTACT me @ o.o.morake23@gmail.com
