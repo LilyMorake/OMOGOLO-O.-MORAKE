@@ -10,6 +10,7 @@ I am currently in Zhejiang University for my masters and I am working on my Desi
 Whatever you set your mind to, you can achieve.
 
 ## INTERESTS
+* learn how to code
 
 ## HOBBIES 
   * Reading interesting books
